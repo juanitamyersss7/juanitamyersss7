@@ -1,6 +1,5 @@
 - Juanita / Phoenix :)
 - 14 ♡
-- Australia
 - Instagram: juanita.myersss7
 - Snapchat: golden-nita7
 
